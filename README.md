@@ -1,3 +1,3 @@
 # Nells Website
 
-Portfolio/CV/Marketing för Nell Jonason, frilans Copywriter
+Portfolio/CV/Marketing för Nell Jonason, frilans Copywriter.
